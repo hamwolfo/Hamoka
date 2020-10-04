@@ -1,1 +1,1 @@
-# Hamoka
+FUCKED KHAN FOR BEST FRIEND DARO❤️❤️❤️
